@@ -1,2 +1,0 @@
-# Wine-Hub
-Privacy Policy
